@@ -1,0 +1,4 @@
+yassuです
+ロボカップジュニアでライトウェイトで出ています
+担当はハードとソフトウェアです
+twitterアカウントはhttps://twitter.com/yassu6147です
